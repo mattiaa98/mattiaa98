@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mattiaa98
+- I'm a finance graduate student
+- 👀 I’m interested in Coding, Finance and Statistics.
+- 🌱 I’m currently learning GOLAN.
